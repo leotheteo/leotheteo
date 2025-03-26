@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+hii <3
+
+im leo! im a 14 year old who likes listening to music and making music ^^
+
+i also plan to start coding more :3
