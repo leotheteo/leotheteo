@@ -20,6 +20,7 @@ Here are some ideas to get you started:
 im leo! im a 15 year old who likes listening to music and making music ^^
 i go by they/them
 
+i run a music distributor along with @snowythebudg
 
 
 i also plan to start coding more :3
