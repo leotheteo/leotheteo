@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 
 
-im leo! im a 14 year old who likes listening to music and making music ^^
+im leo! im a 15 year old who likes listening to music and making music ^^
 i go by they/them
 
 
