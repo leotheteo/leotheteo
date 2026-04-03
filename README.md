@@ -1,5 +1,5 @@
-im leo! im a 15 year old who likes listening to music and making music ^^
-i go by they/them
+im kai! im a 15 year old who likes listening to music and making music ^^
+i go by he/they
 i run a music streaming platform (https://soundvia.eu) with @xnti.ts
 i also plan to start coding more :3
 
